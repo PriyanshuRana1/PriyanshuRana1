@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **priyanshurana833@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAFrKAtL-Vw/Hr-mz4s_zkxYsyyMN5Bldw/view?utm_content=DAFrKAtL-Vw&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink&mode=preview](https://www.canva.com/design/DAFrKAtL-Vw/Hr-mz4s_zkxYsyyMN5Bldw/view?utm_content=DAFrKAtL-Vw&utm_campaign=designshare&utm_medium=link&utm_source=publishsharelink&mode=preview)
+- 📄 Know about my experiences https://www.canva.com/design/DAFrQRkKOyM/yXhNy19eFCbK_ysu5q82aA/edit
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
